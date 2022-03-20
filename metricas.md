@@ -1,0 +1,7 @@
+# Métricas
+
+Las emergentes valen por su potencial no por sus ventas. Un error común de los emprendedores limitar sus emprendimientos a las ventas. Realizar un producto con un modelo de negocios es más complicado que hacer simplemente un producto. Justamente para desarrollar modelos de negocios y hacer los emprendimientos rentables suelen ser las rondas de inversión de A en adelante.
+
+Durante las etapas iniciales del emprendimiento se debe enfocar en el producto, enfatizando el término de producto utilizado en este tratado. Aunque en esta etapa se puede facturar, todo es cuestión de métricas. Ya podrán investigar el ritmo de crecimiento o metas que cada firma de capital espera o le interesa.
+
+No hay producto lo suficientemente validado para no ofrecer pruebas al cliente. No seás terco con las ventas, enfocáte en las métricas, que nuestras riquezas están en el futuro si vemos el futuro, no el presente. Hasta las compañías más grandes con sus productos más exitosos, brindan a los clientes potenciales el beneficio de intentar sus productos de gratis, sea con funciones limitadas o por un periodo de tiempo limitado. Brindá ese beneficio vos, que lo necesitás más que nadie. Hacelo vos, que nadie te conoce. Pero hacelo sin perder dignidad, sin causar desprecio. Debe de haber siempre un beneficio mutuo, que debe incluso ser obvio para el cliente, de lo contrario puede devaluar lo que le estás ofreciendo y perderás así la venta siquiera antes de haberlo intentarlo.
