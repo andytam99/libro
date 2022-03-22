@@ -1,4 +1,4 @@
-# Seguridad
+### Seguridad
 
 Del concepto erróneo de innovación que se tiene por emprender surgen muchas frivolidades como lo es el creer que nuestro emprendimiento no tiene igual, es primero en el mercado o no tiene competencia. De esta surge a su vez un sentir que el emprendimiento se tiene que hacer ya porque sino va a ser muy tarde, porque sino otro lo va a hacer, o porque sino alguien se lo va a robar. Todos estos son signos de inexperiencia, y definitivamente son cosas que un inversionista al oír va a concluir con que no hay razón para seguir conversando.
 
@@ -12,10 +12,10 @@ En concordancia con los fundamentos anteriormente vistos, si vos tenés lo que e
 
 El momento correcto para hacer las cosas no es cuando vos creés, es cuando es. Si juntas el equipo y ejecutás la visión, y se logra algo, ese fue el momento correcto, sino no, o al menos no el tuyo.
 
-Es además importante entender que no hay nada que hacer buscando inversionistas sin haber lanzado el producto al mercado. Sin métricas no tenés nada para el inversionista. Volvemos a lo anterior, las métricas hablan. Nada más. Al inversionista lo único que le importa saber es como le vas a devolver el dinero y con ganancias. El inversionista solo entiende de números, no de ideas ni visiones ni comparaciones. 
+Es además importante entender que no hay nada que hacer buscando inversionistas sin haber lanzado el producto al mercado. Sin métricas no tenés nada para el inversionista. Volvemos a lo anterior, las métricas hablan. Nada más. Al inversionista lo único que le importa saber es como le vas a devolver el dinero y con ganancias. El inversionista solo entiende de números, no de ideas ni visiones ni comparaciones. El inversionista no anda con su bola de cristal, cuando invierte en la bolsa, invierte en base a números y estadísticas. Cuando invierte en una empresa, quiere ver lo mismo. No le hables de ideas ni visiones ni presentimientos, que ninguno aquí somos magos.
 
 Para cuando te presentés a un inversionista, ya debés tener una buena base de clientes que sostienen la compañía y que crece en virtud de la palabra “emergente”. Un crecimiento constante sino exponencial. Si esto no es así, no has cumplido con ninguno de los fundamentos mencionados anteriormente.
 
-Con esto ya sabrás cuando estás listo para emprender o no. Cuándo te es posible o no. Con esto te evitarás perdidas innecesarias, y no te retardarás el inevitable final. 
+Con esto ya sabrás cuándo estás listo para emprender o no. Cuándo te es posible o no. Con esto te evitarás perdidas innecesarias, y no te retardarás el inevitable final. 
 
-Dejá de soñar y ponete a ejecutar. Dejá de preocuparte incluso en nombres de marca y en dominios web, correos electrónicos con dominio propio. De primero el producto, luego le ponés nombre. No le pongás nombre a nada que no existe. Fundamento esencial: El estado de las cosas, la realidad. Emprendé apegado al presente y con lo presente, sino no estás parado en ningún lado. 
+Dejá de soñar y ponete a ejecutar. Dejá de preocuparte incluso en nombres de marca, en dominios web y correos electrónicos con dominio propio. De primero el producto, luego le ponés nombre. No le pongás nombre a nada que no existe. Fundamento esencial: El estado de las cosas, la realidad. Emprendé apegado al presente y con lo presente, sino no estás parado en ningún lado. 

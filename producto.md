@@ -1,4 +1,4 @@
-# Producto
+### Producto
 
 Cuando se piensa en una emergente, comúnmente se piensa en una empresa enfocada en innovar. Sin embargo, será mejor reconsiderar esta creencia que rodea el emprendimiento.
 
@@ -14,6 +14,6 @@ Se habla mucho de disrupción también como un sinónimo de innovar, pero invito
 
 Hay demasiado mercado, demasiado campo para competir, demasiadas tecnologías y demasiada innovación que mucha no termina de llegar a nuestros países, y es ahí donde la mayoría nos debemos de enfocar. De lo contrario, puedo casi garantizar que solo se está perdiendo el tiempo.
 
-Algunos ejemplos que puedo citar son compañías como Rappi o Glovo, que no necesariamente innovaron, sino que importaron nuevos servicios como los que comenzaron compañías en EE.UU. como Instacart o Doordash. Cualquier emprendimiento en el mercado de las e-Bike tampoco son innovadoras, sino explotadoras. Otro podría ser Mercado Libre, en base a otros pioneros en su mercado que podrían ser eBay o Amazon.
+Algunos ejemplos que puedo citar son compañías como Rappi o Glovo, que no necesariamente innovaron, sino que importaron servicios de pioneros como Instacart o Doordash. En el mercado de las movilidad, emprendimientos como Tembici en Brasil o Lime en US tampoco son innovadoras, sino explotadoras. Otro podría ser Mercado Libre, en base a otros pioneros en su mercado que podrían ser eBay o Amazon.
 
 Hay mucho espacio para competir. Ser el pionero en un mercado no implica ningún beneficio mayor que el de un seguidor. El pionero educa, el seguidor explota. Posiblemente ninguno de los servicios que utilizás en tu día a día son de compañías pioneras en sus respectivos mercados.
