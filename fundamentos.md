@@ -1,4 +1,4 @@
-# Fundamentos del aprendizaje
+### Fundamentos del aprendizaje
 
 Comenzar con un objetivo presupuesto como algo irrealista es además y sobre todas las cosas ponerse un objetivo general. Tengo varios fundamentos que me parecen esenciales a la hora de aprender.
 

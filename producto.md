@@ -2,13 +2,13 @@
 
 Cuando se piensa en una emergente, comúnmente se piensa en una empresa enfocada en innovar. Sin embargo, será mejor reconsiderar esta creencia que rodea el emprendimiento.
 
-Un equipo que pretende innovar en sus primeros emprendimientos posiblemente no sea sino irrealista. Innovación requiere no solo conocimiento y experiencia en el mercado que se quiere innovar sino también recursos con los que difícilmente un equipo en sus primeros emprendimientos puede contar. 
+Un equipo que pretende innovar en sus primeros emprendimientos posiblemente no sea sino irrealista. Innovación requiere no solo conocimiento y experiencia en el mercado que se quiere innovar sino también recursos con los que difícilmente un equipo en sus primeros emprendimientos puede contar.
 
 Es por esto que más común es ver ex-empleados o ejecutivos innovar en un mercado, como son el caso de Lucid Motors con un ex-Tesla, o Relativity Space con un ex-Blue Origin.
 
 De otra manera lo más común son personas con experiencia en el emprendedurismo aunque no necesariamente en el mercado que quiere innovar, pero con presupuesto para costear investigación y desarrollo, como son el caso de Blue Origins con Jeff Bezos o cualquiera de los “PayPal Mafia”.
 
-De ahí en adelante, lo razonable para un emprendedor no es innovar sino competir y explotar un mercado que ya existe y que ha sido validado, con tecnología y productos ya existentes. 
+De ahí en adelante, lo razonable para un emprendedor no es innovar sino competir y explotar un mercado que ya existe y que ha sido validado, con tecnología y productos ya existentes.
 
 Se habla mucho de disrupción también como un sinónimo de innovar, pero invito a reconsiderarlo como simplemente un emprendimiento que logra explotar lo que ya hay que no se había logrado explotar.
 

@@ -1,3 +1,3 @@
-# Estilo
+### Estilo
 
 Trato de escribir de manera precisa, sin mucha composición. Normalmente escribo solo máximas, pero voy a esforzar un poco la profundización para ser claro. Generalmente cada párrafo va a tocar un tema o un punto, e intento que el párrafo no sea largo para adecuarme a mi estilo preferido de aporte, que son las máximas. Las máximas siempre serán usualmente la primera oración del párrafo. De esta manera, cuando se vea una página lleno de texto, entiéndase que cada párrafo es particular y no depende necesariamente de otro. Doy así la libertad de leer por donde se desee y cuanto se desee.

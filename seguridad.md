@@ -16,6 +16,6 @@ Es además importante entender que no hay nada que hacer buscando inversionistas
 
 Para cuando te presentés a un inversionista, ya debés tener una buena base de clientes que sostienen la compañía y que crece en virtud de la palabra “emergente”. Un crecimiento constante sino exponencial. Si esto no es así, no has cumplido con ninguno de los fundamentos mencionados anteriormente.
 
-Con esto ya sabrás cuándo estás listo para emprender o no. Cuándo te es posible o no. Con esto te evitarás perdidas innecesarias, y no te retardarás el inevitable final. 
+Con esto ya sabrás cuándo estás listo para emprender o no. Cuándo te es posible o no. Con esto te evitarás perdidas innecesarias, y no te retardarás el inevitable final.
 
-Dejá de soñar y ponete a ejecutar. Dejá de preocuparte incluso en nombres de marca, en dominios web y correos electrónicos con dominio propio. De primero el producto, luego le ponés nombre. No le pongás nombre a nada que no existe. Fundamento esencial: El estado de las cosas, la realidad. Emprendé apegado al presente y con lo presente, sino no estás parado en ningún lado. 
+Dejá de soñar y ponete a ejecutar. Dejá de preocuparte incluso en nombres de marca, en dominios web y correos electrónicos con dominio propio. De primero el producto, luego le ponés nombre. No le pongás nombre a nada que no existe. Fundamento esencial: El estado de las cosas, la realidad. Emprendé apegado al presente y con lo presente, sino no estás parado en ningún lado.
